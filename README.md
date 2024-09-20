@@ -2,7 +2,7 @@
 - 👀 I’m interested in fall weather
 - 🌱 I’m currently learning lots of thing
 - 💞️ I’m looking to collaborate on everyting
-- 📫 How to reach me ...
+- 📫 How to reach me on slack
 - 😄 Pronouns: he/him/his
 - ⚡ Fun fact: tbd
 
