@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @SbakerVetro
-- 👀 I’m interested in fall weather
+- 👀 I’m interested in nice weather
 - 🌱 I’m currently learning lots of thing
-- 💞️ I’m looking to collaborate on everyting
-- 📫 How to reach me on slack
+- 💞️ I’m looking to collaborate on some things
+- 📫 How to reach me on slack (please do not0
 - 😄 Pronouns: he/him/his
 - ⚡ Fun fact: tbd
 
